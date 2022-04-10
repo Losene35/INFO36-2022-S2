@@ -4,6 +4,8 @@ Week 4: Individual Practical Assignment
 
 Name: Losene Sheriff
 
+To:  Jethro Johnson
+
 ID#   5226
 
 Section: 2
